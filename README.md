@@ -1,5 +1,5 @@
 # COMUNIDAD MDEI
-CRUZADA POR LA EDUCACION.ONLINE
+CRUZADAPORLAEDUCACION.ONLINE
 
          /\\\\            /\\\\  /\\\\\\\\\\\\     /\\\\\\\\\\\\\\\  /\\\\\\\\\\\
          \/\\\\\\        /\\\\\\ \/\\\////////\\\  \/\\\///////////  \/////\\\///
