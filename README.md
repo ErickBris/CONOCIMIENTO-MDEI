@@ -25,3 +25,5 @@ DIRCORD https://discord.io/ProgramacinMDEI
 FACEBOOK https://www.facebook.com/groups/1222842638483075
 
 WHATSAPP https://chat.whatsapp.com/Bu53Ia4AnZAE4H5PKzt19q
+
+COMPARTE TU MATERIAL A erick1saradmon@gmail.com PARA HACERLO PUBLICO
