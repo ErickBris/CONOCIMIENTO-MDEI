@@ -22,6 +22,6 @@ TELEGRAM https://t.me/programacion_mdei
 
 DIRCORD https://discord.io/ProgramacinMDEI
 
-https://www.facebook.com/groups/1222842638483075
+FACEBOOK https://www.facebook.com/groups/1222842638483075
 
-https://chat.whatsapp.com/Bu53Ia4AnZAE4H5PKzt19q
+WHATSAPP https://chat.whatsapp.com/Bu53Ia4AnZAE4H5PKzt19q
