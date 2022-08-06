@@ -16,7 +16,7 @@ UNETE A NUESTRA COMUNIDAD, AYUDEMOS A LA SOCIEDAD.
 
 COMPARTE LOS ARCHIVOS LO MAS QUE PUEDAS.
 
-TELEGRAM https://t.me/MDEI_ORG
+TELEGRAM https://t.me/MDEI_ORG\n
 TELEGRAM https://t.me/programacion_mdei
 DIRCORD https://discord.io/ProgramacinMDEI
 FACEBOOK https://www.facebook.com/groups/1222842638483075
